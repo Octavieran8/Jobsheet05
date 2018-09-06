@@ -1,0 +1,18 @@
+# Jobsheet05
+screenshoot jobsheet 05
+![alt text](https://github.com/Octavieran8/Jobsheet05/blob/master/Screenshot%20(378).png)
+![alt text](https://github.com/Octavieran8/Jobsheet05/blob/master/Screenshot%20(379).png)
+![alt text](https://github.com/Octavieran8/Jobsheet05/blob/master/Screenshot%20(382).png)
+![alt text](https://github.com/Octavieran8/Jobsheet05/blob/master/Screenshot%20(383).png)
+![alt text](https://github.com/Octavieran8/Jobsheet05/blob/master/Screenshot%20(384).png)
+![alt text](https://github.com/Octavieran8/Jobsheet05/blob/master/Screenshot%20(385).png)
+![alt text](https://github.com/Octavieran8/Jobsheet05/blob/master/Screenshot%20(386).png)
+![alt text](https://github.com/Octavieran8/Jobsheet05/blob/master/Screenshot%20(387).png)
+![alt text](https://github.com/Octavieran8/Jobsheet05/blob/master/Screenshot%20(388).png)
+![alt text](https://github.com/Octavieran8/Jobsheet05/blob/master/Screenshot%20(389).png)
+![alt text](https://github.com/Octavieran8/Jobsheet05/blob/master/Screenshot%20(390).png)
+![alt text](https://github.com/Octavieran8/Jobsheet05/blob/master/Screenshot%20(391).png)
+![alt text](https://github.com/Octavieran8/Jobsheet05/blob/master/Screenshot%20(392).png)
+![alt text](https://github.com/Octavieran8/Jobsheet05/blob/master/Screenshot%20(393).png)
+![alt text](https://github.com/Octavieran8/Jobsheet05/blob/master/Screenshot%20(394).png)
+![alt text](https://github.com/Octavieran8/Jobsheet05/blob/master/Screenshot%20(395).png)
